@@ -6,3 +6,4 @@ i like supreme tacos and gucci nachos which come from a taco tesla-truck out in 
 recently i've come to fancy earth's far superior dessert, "ice cream."
 update: abort destruction of planet earth & inhabitants.
 misson: acquire samples of species "cow."
+secondairy mission: locate "chocolate cow"
